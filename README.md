@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently pursuing B.Tech @ SUIET,Mukka,Manglore<br>🌱 I’m currently learning Computer Science<br>
+🔭 I’m currently pursuing B.Tech @ SUIET,Mukka,Manglore<br>🌱 I’m currently learning Computer Science<br>🌱 Reach me :harshithav1974@gmail.com<br>
 
 
 ## 🌐 Socials:
